@@ -27,7 +27,7 @@ TU Delft Aerospace Engineering → Formula Student Aero Lead → F1 Aerodynamics
 | 18-24 Months | TU Delft Transfer |
 
 ## 📫 Contact
-- LinkedIn: https://www.linkedin.com/in/abd%C3%BClbaki-k%C4%B1l%C4%B1%C3%A7/
+- LinkedIn: https://www.linkedin.com/in/abdulbaki-kilic/
 - Email: [your email]
 
 ---
